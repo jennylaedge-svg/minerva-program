@@ -32,7 +32,7 @@ Young talented women are strategically important because early support can compo
 
 The long-term aim is not simply to help individual women succeed. It is to create enough women in positions of influence that female advancement becomes increasingly self-sustaining.
 
-## Stream 2: Household and Relationship Agency
+## Stream 2: Private Domestic Leadership Development
 
 Minerva believes professional power and private power are connected.
 
