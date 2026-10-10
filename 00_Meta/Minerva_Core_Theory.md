@@ -309,6 +309,31 @@ Outside partners can provide novelty, challenge, sexual status, and experiences 
 
 Minerva considers this combination particularly powerful for women whose traditional upbringing previously connected female sexuality with restraint, dependence, or male ownership.
 
+### Asymmetric Sexual Orientation
+
+Minerva does not expect sexual symmetry between the leadership and caregiver roles.
+
+For the female partner, external sexual freedom is understood as expansion. Novelty, attraction, choice, challenge, and being desired can reinforce agency, confidence, status, and freedom from traditional female restraint.
+
+For the caregiving male partner, sexual exclusivity serves a different function. Minerva seeks to concentrate rather than broaden his erotic investment.
+
+His partner increasingly becomes the central source of:
+
+- sexual attention;
+- approval;
+- intimacy;
+- anticipation;
+- erotic release.
+
+Minerva believes that unresolved or delayed sexual desire can increase his attentiveness toward her and strengthen the association between service, devotion, her pleasure, and his own eventual gratification.
+
+The intended contrast is:
+
+> **Her sexuality expands outward. His sexuality concentrates inward.**
+
+This should reinforce rather than replace the intrinsic value Minerva assigns to caregiving. Service must develop into a meaningful identity in its own right rather than becoming something performed only in exchange for sexual reward.
+
+Later practices such as controlled release or chastity can formalise and intensify this erotic concentration, but they are programme methods rather than foundational theory.
 ## Biological and Behavioural Research
 
 Minerva does not rely on a claim that sexual experiences biologically transform women through a single mechanism.
